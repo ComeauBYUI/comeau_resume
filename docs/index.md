@@ -16,8 +16,8 @@ The Canadian!
 
 ## Education
 
-`2025-2027`
-__LDS Business College__, Salt Lake City, UT
+`2013-2017`
+___Goegia Tech__, Salt Lake City, UT
 
 - Full academic scholarship with 4.0 GPA
 
